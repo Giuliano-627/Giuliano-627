@@ -22,4 +22,4 @@
 
 ### Si te interesó mi perfil, te invito a contactarme 📩
 Email: f15ur4.97@gmail.com
-LinkedIn: 
+LinkedIn: https://www.linkedin.com/in/giuliano-contino-55246222b/
